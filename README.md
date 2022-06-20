@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NiceDen
 - 👀 I’m interested in cybersecurity, databases, 3D and programming
-- 🌱 I’m currently learning englihs..
+- 🌱 I’m currently learning english..
 - 💞️ I’m looking to collaborate on ???
 - 📫 How to reach me -
 
